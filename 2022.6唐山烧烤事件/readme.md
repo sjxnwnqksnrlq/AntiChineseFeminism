@@ -12,3 +12,4 @@
 微信朋友圈舆论合集：
 
 <img src="v2-c73cd6886100cc126f929aea69b55334_r.jpeg" width=20%>
+<img src="v2-e06f678f2a01537d6d951404eab8a4e9_r.jpeg" width=20%>
