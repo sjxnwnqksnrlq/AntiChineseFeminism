@@ -1,6 +1,6 @@
 合订本：
 
-[网易新闻](https://github.com/sjxnwnqksnrlq/AntiChineseFeminism) [存档](https://web.archive.org/web/20220611111722/https://www.163.com/dy/article/F6SH0LA8052883HQ.html)
+[网易新闻](https://www.163.com/dy/article/F6SH0LA8052883HQ.html) [存档](https://web.archive.org/web/20220611111722/https://www.163.com/dy/article/F6SH0LA8052883HQ.html)
 
 [网易新闻](https://www.163.com/dy/article/F6R3IMP805379U9E.html) [存档](https://web.archive.org/web/20220611111342/https://www.163.com/dy/article/F6R3IMP805379U9E.html)
 
