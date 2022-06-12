@@ -28,4 +28,10 @@
 <img src="v2-046b59e050c08c2866d28ffa1e1465f0_1440w.jpeg" width=20%>
 <img src="v2-4cfa396caa7bdc3db3717532153aa7c3_1440w.jpeg" width=20%>
 
+出自 [这里](https://mp.weixin.qq.com/s/0CR-J57tALMkDie7rSLc-A) [存档](https://archive.is/wip/RhMMn)
+
+<img src="FyklhCm22k.jpeg" width=20%>
+<img src="QNK0xO6AtR.jpeg" width=20%>
+<img src="tJ0zGNVgJV.jpeg" width=20%>
+
 知乎见义勇为后果合集：[原文](https://www.zhihu.com/question/537092295/answer/2524495431) [存档](https://archive.is/wip/pLQba)
