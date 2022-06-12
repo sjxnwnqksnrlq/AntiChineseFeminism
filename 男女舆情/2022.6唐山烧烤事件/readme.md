@@ -2,8 +2,6 @@
 
 ------
 
-微博舆论合集：
-
 <img src="v2-2d8b45eea78fb47871287b4f3d15e1d5_r.jpeg" width=20%>
 <img src="v2-1e05ca2bddbb5c9ab4ac764faf95cd1b_r.jpeg" width=20%>
 <img src="v2-2a2d405ec6162f7dc5f1a869e0b2af98_1440w.jpeg" width=20%>
@@ -16,8 +14,6 @@
 <img src="v2-7fb972fdd8bea37cebb7bf30b5cef4d6_1440w.jpeg" width=20%>
 
 ------
-
-微信朋友圈舆论合集：
 
 <img src="v2-c73cd6886100cc126f929aea69b55334_r.jpeg" width=20%>
 <img src="v2-e06f678f2a01537d6d951404eab8a4e9_r.jpeg" width=20%>
