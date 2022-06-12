@@ -27,3 +27,5 @@
 
 <img src="v2-046b59e050c08c2866d28ffa1e1465f0_1440w.jpeg" width=20%>
 <img src="v2-4cfa396caa7bdc3db3717532153aa7c3_1440w.jpeg" width=20%>
+
+知乎见义勇为后果合集：[原文](https://www.zhihu.com/question/537092295/answer/2524495431) [存档](https://archive.is/wip/pLQba)
