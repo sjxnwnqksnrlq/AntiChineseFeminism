@@ -35,3 +35,8 @@
 <img src="tJ0zGNVgJV.jpeg" width=20%>
 
 知乎见义勇为后果合集：[原文](https://www.zhihu.com/question/537092295/answer/2524495431) [存档](https://archive.is/wip/pLQba)
+
+出自 [这里](https://www.zhihu.com/question/537273983/answer/2527104697) [存档](https://archive.is/wip/hZoiq)
+
+<img src="v2-82f58845da915055bf60b770da8a995d_1440w.jpeg" alt="v2-82f58845da915055bf60b770da8a995d_1440w" style="zoom:20%;" />
+<img src="v2-23090df53b127fd6dc73bf40506a758a_1440w.jpeg" alt="v2-23090df53b127fd6dc73bf40506a758a_1440w" style="zoom:20%;" />
