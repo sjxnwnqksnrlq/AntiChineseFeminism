@@ -44,3 +44,11 @@
 出自 [这里](https://www.zhihu.com/pin/1519816108836515840) [存档](https://archive.is/wip/EVWxG)
 
 <img src="3f846c9a-14af-4694-80b7-16bda595ee8d.jpeg" style="zoom" width=20% />
+
+出自 [这里](https://www.zhihu.com/pin/1519958123292536832) [存档](https://archive.is/wip/pslRt) 对“生物爹”的憎恨：
+
+<img src="9e9f2bee-8fbf-40f8-b15f-c70cff7674bf.jpeg" style="zoom" width=20% />
+
+出自 [这里](https://www.zhihu.com/pin/1519986142082109440) [存档](https://archive.is/wip/qchNO) 微博热搜合订本——女性**又害怕暴力又渴望暴力**：
+
+<img src="7baab243-6980-4598-b0c0-eba7a628d83b.jpeg" style="zoom" width=20% />
