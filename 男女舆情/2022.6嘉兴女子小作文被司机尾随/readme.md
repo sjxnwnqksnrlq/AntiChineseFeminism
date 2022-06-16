@@ -6,7 +6,15 @@
 
 >【#称被黑车司机尾随当事女子道歉#：系误会】6月13日，浙江嘉善，网友发布一段“深夜回家遭黑车司机跟随敲门”的监控视频，视频下方，该网友表示“网约车司机，不认识”，事件引发网友巨大关注。14日晚，视频发布者致歉，表示当时没有搞清楚情况，当时系男子送女子回家，不存在“尾随”情况。#蓝v视界# 嘉兴·嘉善县 沸点视频的微博视频
 
-但两者的舆论差距极大——从这里（[原文](https://www.zhihu.com/question/537740161/answer/2529524942)/[存档](https://archive.is/wip/CHRIi)）可以发现：
+警方的众多微博账号下场极其义愤填膺 [原文](https://www.zhihu.com/question/537740161/answer/2530884740) [存档](https://archive.is/wip/1lIvi)：
+
+<img src="1e54daf9-3dc1-413b-98fa-745636b4e69c.jpg" alt="1e54daf9-3dc1-413b-98fa-745636b4e69c" style="zoom" width=100%/>
+
+微博舆论直接说这男性应该免费为女性服务：
+
+<img src="7ad10abb-69d7-42c7-9eee-1dce24bd3bb7.jpg" alt="7ad10abb-69d7-42c7-9eee-1dce24bd3bb7" style="zoom" width=50%/>
+
+造谣和辟谣两者的舆论差距极大——从这里（[原文](https://www.zhihu.com/question/537740161/answer/2529524942)/[存档](https://archive.is/wip/CHRIi)）可以发现：
 
 造谣热度如下：
 
